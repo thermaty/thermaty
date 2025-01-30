@@ -1,1 +1,1 @@
-Hi, I'm thermaty. I am currently a student at FIT CTU in Prague.
+Hi, I'm thermaty. I am currently a student in Prague.
